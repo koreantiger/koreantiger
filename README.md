@@ -2,5 +2,5 @@
  
 
 
-- 📫 How to reach me: k.mansourpour@tudelft.nl
+- 📫 How to reach me: kiarash.mansourpour@gmail.com
 
